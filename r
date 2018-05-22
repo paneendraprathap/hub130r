@@ -1,1 +1,1 @@
-i will win
+poda.. andavane namba pakko
