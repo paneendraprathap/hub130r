@@ -1,1 +1,1 @@
-victory is yours
+poda.. andavane namba pakko
